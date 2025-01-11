@@ -1,12 +1,12 @@
 ## Pengumuman 
-Pada tahun 2025 ini, Aku ingin memaklumkan bahawa account ini bakal mempunyai siri pengkongsian project dan direct selling perisian yang dibina. 
+Pada tahun 2025 ini, Ingin dimaklumkan bahawa account social media ini bakal mempunyai siri pengkongsian project dan direct selling perisian yang dibina. 
 
-Jikalau ianya terlalu melecehkan atau terasa annoy. Boleh remove/unfriend dan korang kongsikan laa contact. Supaya kita masih lagi berkomunikasi jika tidak. Ianya tidak mengapa.  
+Jikalau ianya terlalu melecehkan atau terasa annoying. Boleh remove/unfriend dan mohon kongsikan cara untuk kita berhubung. Supaya masih lagi berkomunikasi. Jika tidak, ianya tidak mengapa.  
   
 Jikalau berminat boleh terus buat payment. Harga seperti tertera.  
 Tiada potongan harga, kecuali pada situasi atau event tertentu. Contoh, Hari Raya Aidilfitri, CNY, dan cuti umum(islamic).  
   
-Harga di dalam USD jikalau dalam RM harganya sudah aku kalikan 4.8 (termasuk tax) [Harga dalam USD * 4.8].  
+Harga di dalam USD jikalau dalam RM harganya sudah dikalikan 4.8 (termasuk tax) [Harga dalam USD * 4.8].  
 
 ## Servis, Produk & Teknologi  
 Berikut servis, Produk dan teknologi yang disediakan adalah:-  
